@@ -1,5 +1,4 @@
 @sambrannon's life
-===============
 
 - 09/02/1989 Born
 - ~1996 Moved to Minnesota from California

@@ -1,8 +1,24 @@
-@sambrannon's lifedsf 
+@sambrannon's life
 ===============
 
 - 09/02/1989 Born
-- ~1968 Summer job
-- 03/1976 Built a computer
-- 01/04/1976 Started a [company](http://en.wikipedia.org/wiki/Apple_Inc. "Apple Inc.")
-- 04/1976-2011 Whole bunch of interesting events
+- ~1996 Moved to Minnesota from California
+- 09/2003-05/2007 Attended Owatonna High School
+- 12/2004 Adopted First Dog
+- 24/01/2006 First Triathlon (Rookie Tri w/ Mike and Mike)
+- 06/2006 Made first bowl on lathe
+- 05/2007 Graduated High School
+- 19/07/2007-28/07/2007 Trip to Vancouver
+- 09/2007-05/2011 Attended College at UWM
+- 01/10/2007 First time in Chicago
+- 03/10/2008 First Weezer Concert
+- 28/12/2009-02/01/2010 AIAS Forum in Minneapolis
+- 12/06/2010-08/08/2010 Europe Study Abroad (Paris, Rome, Venice, Seville, and more)
+- 28/10/2010-02/02/2011 AIAS Forum Toronto
+- 05/2011 Received Bachelors of Science in Architectural Studies
+- 30/12/2011-02/01/2012 First time in Pittsburgh
+- 12/08/2012-17/08/2012 Roadtrip to Montana & Yellowstone
+- 31/10/2014-04/11/2014 First time in San Francisco
+- 14/11/2014 Started work at Evolve Labs
+- 13/10/2015-16/10/2015 Rode bike from Saint Paul to Duluth
+- 11/2015 Moved to Minneapolis
